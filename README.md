@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @1QSO
+- 👀 I’m interested in Discord!
+- 🌱 I’m currently learning Sex!
+- 💞️ I’m looking to collaborate on Sex!
+- 📫 How to reach me contact me on discord.
+- 😄 Pronouns: They/Them/She/Her/He/Him/Dat/Det/Tho/Thu/am/amI?/goo?/you/omg/shutup.
+- ⚡ Fun fact: I'm LGBTQ+
